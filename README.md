@@ -1,0 +1,1 @@
+I’m an experienced insurance administrator with strong time management and communication skills. I work well in teams and also take initiative when needed. I’m good at solving problems and negotiating to reach the best outcomes. Always eager to learn and take on new challenges.
